@@ -1,0 +1,1 @@
+Le esperienze professionali che ho intrapreso mi hanno dato modo di confidare nella mia creatività e nella mia propensione al problem solving. Parallelamente a questi anni di lavoro mi sono dedicato allo studio dell’informatica applicata con un focus su software e linguaggi di programmazione per lo sviluppo, la promozione web e per la raccolta e analisi di dati.
